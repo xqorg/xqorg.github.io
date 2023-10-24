@@ -1,1 +1,0 @@
-# xqorg.github.io
